@@ -5,7 +5,8 @@
    <details>
     <summary><ins>INFO</ins> Click to expand</summary>
       <b>interests n more on rentry #Sorry</b> <br>     
-    hiiiathank you for checkin me out. ♩ do not be afraid to int, I'm quiet at first, but will open up eventually (#DisgustingFreakAtHeart). do interact if we share any interests! sometimes I write weirdly.. dunno why I do that. Mika kagehira possessed me. Also, my pt style is inconsistent as fuck!! I get bored of just keeping one. Mood swings + terrible memory, I tend to forget important details. my health is not the best so be patient with me.m... my right eye is also fucked so I MIGHT read stuff wrong or type like shit when tired.<br>
+    hiiiathank you for checkin me out. ♩ do not be afraid to int, I'm quiet at first, but will open up eventually (#DisgustingFreakAtHeart). btw, my pt style is inconsistent as fuck!! I get bored of just keeping one. <br>
+      <b>kindaaa important..</b> I got Mood swings + terrible memory, I tend to forget important details. my health is not the best so be patient with me.m... my right eye is also fucked so I MIGHT read stuff wrong or type like shit when tired.<br>
       anywa, I talk about Ogata Hyakunosuke sometimes.s. I WANT THAT PARANOID SCHIZOID BOY!!! I also talk ʼbout my ocs. in fact the oc in my pfp is made and drawn by me^_^ my dear creature. (don't steal pfp..obviously..?) tickles uoy. ￬￬￬this me. 
       <p align="center">      <img width="35%" src="https://file.garden/Z4_uMXj5okOfzfmz/20260616_151754.jpg"><br> </p> 
   </details>
