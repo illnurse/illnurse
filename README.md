@@ -5,10 +5,10 @@ I'll make this prettier later sorry. <br>
 <sup><b>italian</b> 15.07 ♩  iwc</sup>   <br> </p>
    <details>
     <summary><ins>INFO</ins> Click to expand</summary>
- <p align="center">     <b>interests n more on rentry #Sorry</b> <br>     
+ <b>interests n more on rentry #Sorry</b> <br>     
     hiiiathank you for checkin me out. ♩ do not be afraid to int, I'm quiet at first, but will open up eventually (#DisgustingFreakAtHeart). btw, my pt style is inconsistent as fuck!! I get bored of just keeping one.... learning how to tint and stuff  ~~  <br>
       <Ins><b>kindaaa important →:</b></Ins> I got Mood swings + terrible memory, I tend to forget important details. my health is not the best so be patient with me.m... my right eye is also fucked so I MIGHT read stuff wrong or type like shit when tired. anywa, I talk about Ogata Hyakunosuke sometimes.s. I WANT THAT PARANOID SCHIZOID BOY!!! I also talk ʼbout my ocs. in fact the oc in my pfp is made and drawn by me^_^ my dear creature. (don't steal pfp..obviously..?) tickles uoy. ￬￬￬this me. 
-      <p align="center">      <img width="35%" src="https://file.garden/Z4_uMXj5okOfzfmz/20260616_151754.jpg"><br></p>
+      <p align="center">      <img width="35%" src="https://file.garden/Z4_uMXj5okOfzfmz/20260616_151754.jpg"><br>
   </details>
       
 ![](https://komarev.com/ghpvc/?username=illnurse&color=70130c&label=clients~♡)
