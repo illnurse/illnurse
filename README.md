@@ -12,6 +12,6 @@ ${\color{#d1a890} read}$ ${\color{#7a665b} rentry}$. hi bff <a href="https://git
 <details>
     <summary><ins>MY ART</ins> Click to expand</summary>
  <p align="center">     <b>My dear ocs....</b> <br>     
-<img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled71_20260705080123.png" alt="Pen" width="160" height="170">    <br></p>
+<img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled71_20260705080123.png" alt="Pen" width="100" height="110"> <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled71_20260711030539.png" alt="Pen" width="100" height="110"> <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled71_20260711030714.png" alt="Pen" width="100" height="110"> <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled71_20260711030919.png" alt="Pen" width="100" height="110"> <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled71_20260711030628.png" alt="Pen" width="100" height="110"> <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled71_20260711030800.png" alt="Pen" width="100" height="110"> <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled71_20260711030835.png" alt="Pen" width="100" height="110"><br> ++ didn't show a few! there's too many old ocs. but #WELL more new ocs are coming soon... I have so many ideas.. be ready.. </p>
   </details>
       
