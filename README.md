@@ -8,7 +8,7 @@ ${\color{#d1a890} read}$ ${\color{#7a665b} rentry}$. hi bff <a href="https://git
 <img src="https://files.catbox.moe/fplfj5.gif" alt="Pen" width="20" height="20"> <ins><b>ALT</b></ins> : <a href="https://github.com/illsniper">ILLSNIPER</a>  
   <img src="https://files.catbox.moe/dq41m1.gif" alt="Pen" width="30" height="30">
     </div> 
-<sup><sub>PFP by @dilnyan03 (twt). GIF by @/stingedup (dis)</sub></sup>
+<sup><sub>GIF by @/stingedup (dis)</sub></sup>
 <details>
     <summary><ins>MY ART</ins> Click to expand</summary>
  <p align="center">     <b>My dear ocs....</b> <br>     
