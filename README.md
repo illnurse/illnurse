@@ -7,7 +7,8 @@
 ${\color{#787878} read}$ ${\color{#7a665b} rentry}$. hi <a href="https://github.com/hollow-cirque">zan</a>, <a href="https://github.com/embalmcinth">vik</a> <br>
 <img src="https://i.postimg.cc/Bbj74TJS/IMG-3807.gif" alt="Pen" width="150" height="20"><br>
 <img src="https://i.postimg.cc/6QMTytfX/IMG-5364.gif" alt="Pen" width="15" height="20"> <ins><b>ALTs</b></ins> : <a href="https://github.com/secretintern">secretintern</a> <br>
- 𓈒 ˚ 𓏻 ‎ <img src="https://i.postimg.cc/wjDCdZJz/IMG-3696.gif" alt="Pen" width="20" height="20"> ᣟᣟ<code>BMF</code> <img src="https://i.postimg.cc/KcsYdT88/IMG-6877.gif" alt="Pen" width="20" height="20"> ～
+ 𓈒 ˚ 𓏻 ‎ <img src="https://i.postimg.cc/wjDCdZJz/IMG-3696.gif" alt="Pen" width="20" height="20"> ᣟᣟ<code>BMF</code> <img src="https://i.postimg.cc/KcsYdT88/IMG-6877.gif" alt="Pen" width="20" height="20"> ～<br>
+ <img src="https://files.catbox.moe/v9lv4b.gif" alt="Pen" width="35" height="30"> 
     </div> 
 <sup><sub>GIFs by co/guro</sub></sup>
 <details>
