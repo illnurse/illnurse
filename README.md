@@ -6,7 +6,7 @@
 <a href="https://mika.atabook.org">新BOOK</a> <img src="https://64.media.tumblr.com/171f278a154e5c2dd31ea800e346b27f/af4efc26cbca4a6d-42/s1280x1920/91b77a3dfa750642b203a269a7c36545a27b385d.pnj" alt="Pen" width="20" height="20"> <a href="https://rentry.co/sickwar">RENTRY</a><br>
 ${\color{#5d9452} read}$ ${\color{#afd16d} rentry}$. hi <a href="https://github.com/hollow-cirque">zan</a>, <a href="https://github.com/embalmcinth">vik</a> <br>
 <img src="https://i.postimg.cc/Bbj74TJS/IMG-3807.gif" alt="Pen" width="150" height="20"><br>
-<img src="https://64.media.tumblr.com/e8850da613d995091da770e4edab61a8/85c1bcf957b6c5e0-e8/s400x600/a04f35ac217adf1ea7b4e692e3786149ca78cefe.pnj" alt="Pen" width="15" height="20"> <ins><b>ALTs</b></ins> : <a href="https://github.com/secretintern">1</a>, <a href="https://github.com/ukbros">2</a>, <a href="https://github.com/plainhope">3</a>🍀 <br>
+<img src="https://64.media.tumblr.com/e8850da613d995091da770e4edab61a8/85c1bcf957b6c5e0-e8/s400x600/a04f35ac217adf1ea7b4e692e3786149ca78cefe.pnj" alt="Pen" width="15" height="20"> <ins><b>ALTs</b></ins> : <a href="https://github.com/ukbros">one</a>, <a href="https://github.com/plainhope">two</a>🍀 <br>
  𓈒 ˚ 𓏻 ‎ <img src="https://64.media.tumblr.com/4ee84cd64f6413d3bb8d7e3ca484c428/0c95ed935cee7bff-12/s1280x1920/46613436b539544cfb06c4d68726304bdcfa6c05.pnj" alt="Pen" width="25" height="25"> ᣟᣟ<code>BMF</code> <img src="https://i.postimg.cc/KcsYdT88/IMG-6877.gif" alt="Pen" width="20" height="20"> ～<br>
  <img src="https://64.media.tumblr.com/92b22e8a08da50335909eaaad3837f46/a77aa48f2532ea45-03/s75x75_c1/dbaddf99d9a16721494f7bfde69768b360d5ad74.gifv" alt="Pen" width="20" height="20"> 
     </div> 
